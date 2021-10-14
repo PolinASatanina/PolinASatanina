@@ -2,7 +2,7 @@
 - 👀 интересует необычное и неизвестное.
 - 🌱 на данный момент ищу новое увлечение и обучение 
 - 💞️ хочу сотрудничать с людьми с необычными мозгами , взглядами и идеями 🍃🌚💡 
-- 📫 How to reach me ...
+- 📫 Найти можно в Инстаграм polina_satanina
 
 <!---
 PolinASatanina/PolinASatanina is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
